@@ -1,5 +1,3 @@
-<img width="2048" height="2048" alt="Không Có Tiêu Đề356_20251203115920" src="https://github.com/user-attachments/assets/4da10c4c-e379-43c9-8257-28d157b014a6" />
-
 ![da6e4014f5a16156c8af22e1b1eb8592](https://github.com/user-attachments/assets/ed488b96-11f0-488c-b45c-d99d3d088ec1)
 
 ✧ ೃ༄*ੈ✩✧ ೃ༄*ੈ✩✧ 
@@ -25,7 +23,6 @@
 
 𝒯𝒽𝒶𝓃𝓀𝓈 𝒻ℴ𝓇 𝓇ℯ𝒶𝒹𝒾𝓃ℊ 
 <img width="2048" height="2048" alt="Không Có Tiêu Đề352_20251203161934" src="https://github.com/user-attachments/assets/4267b67e-23d6-43f3-ba48-ed1f187f7e55" />
-<img width="2048" height="2048" alt="Không Có Tiêu Đề356_20251203115920" src="https://github.com/user-attachments/assets/7f75c289-ccca-4298-a96f-986be953c70e" />
 
 
 
