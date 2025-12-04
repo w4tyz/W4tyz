@@ -24,7 +24,8 @@ https://colormytree.me/2025/01KBJ52X5SSQV0B8WTJ8E0PK7Z
 ⋆♱✮♱⋆⋆♱✮♱⋆⋆♱✮♱⋆⋆♱
 
 𝒯𝒽𝒶𝓃𝓀𝓈 𝒻ℴ𝓇 𝓇ℯ𝒶𝒹𝒾𝓃ℊ 
-<img width="2048" height="2048" alt="Không Có Tiêu Đề352_20251203161934" src="https://github.com/user-attachments/assets/4267b67e-23d6-43f3-ba48-ed1f187f7e55" />
+<img width="2048" height="2048" alt="Không Có Tiêu Đề356_20251203172218" src="https://github.com/user-attachments/assets/5adffa67-b825-41b7-a355-f1a4af0018e1" />
+
 
 
 
