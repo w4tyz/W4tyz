@@ -1,6 +1,8 @@
 ![da6e4014f5a16156c8af22e1b1eb8592](https://github.com/user-attachments/assets/ed488b96-11f0-488c-b45c-d99d3d088ec1)
 https://colormytree.me/2025/01KBJ52X5SSQV0B8WTJ8E0PK7Z
 
+<img width="2048" height="2048" alt="Không Có Tiêu Đề356_20251204140932" src="https://github.com/user-attachments/assets/20084f92-7d1c-46d3-92f7-f2ff1572fc9d" />
+
 ✧ ೃ༄*ੈ✩✧ ೃ༄*ੈ✩✧ 
 
 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝓈𝒾𝓉ℯ 
